@@ -1,4 +1,4 @@
-<img align="right" width="180" src="[https://i.imgur.com/QTy7KqD.gif](https://i.pinimg.com/originals/4f/32/af/4f32afae008fb7b33af86b5262fc1f6d.gif)"/>
+<img align="right" width="180" src="https://i.pinimg.com/originals/4f/32/af/4f32afae008fb7b33af86b5262fc1f6d.gif"/>
 
 # Olá! Eu sou a **Yara Beatriz**
 
